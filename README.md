@@ -1,1 +1,1 @@
-# 30 Star Yeterli
+# 50 Star Yeterli
